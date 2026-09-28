@@ -1,0 +1,1 @@
+# Googletranslator-Full-Version-Unlocked
